@@ -1,1 +1,2 @@
-Web ini sedang ada perbaikan atau mainthance, mohon bersabar 
+LAGI UPDATE BESAR BESARAN, WEB NYA ERROR TERUS BANYAK BUG DAN DLL,\
+SALAM RTXJenggat
